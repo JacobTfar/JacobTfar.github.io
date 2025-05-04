@@ -7,13 +7,12 @@ subtitle: Why you'd want to go on a date with me
 My name is Jacob. I have the following qualities:
 
 - I rock a great mustache
-- Ilove my family
+- I love my family
 
 What else do you need?
 
 ### My story
 
-About Me
 My name is Jacob, and my story has been shaped by resilience, adaptability, and a relentless drive to grow. I was born in Staten Island, New York, and moved to Ridgefield, NJ in elementary school. Later, I settled in Union, NJ, where I built lifelong friendships, played soccer in Vauxhall, and spent countless hours biking through Maplewood, Roselle Park, and Elizabeth.
 During my sophomore year of high school, I moved to Costa Rica, a shift that brought both new experiences and unforeseen challenges. Due to personal circumstances, my family relocated again—spending time with relatives in Colombia before returning to the U.S. When I restarted my sophomore year at Union High School, familiar faces made the transition easier, grounding me in a community I had always valued.
 At 18, I began working at UPS as a package handler, determined to move up, help at home, and build a strong foundation for the future. But as life pushed me in new directions, I decided to take on a greater challenge—one that would honor the memory of my father and prove to myself that I could forge my own path. In March 2021, I joined the United States Marine Corps as a Data Systems Administrator, stepping into a role that would broaden my perspective in ways I never expected.
